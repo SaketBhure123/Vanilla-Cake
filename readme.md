@@ -1,0 +1,1 @@
+With its outstanding vanilla flavor, pillowy soft crumb, and creamy vanilla buttercream, this is truly the best vanilla cake I’ve ever had. And after 1 bite, I guarantee you’ll agree.
